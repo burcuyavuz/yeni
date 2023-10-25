@@ -3,3 +3,4 @@ nasılsın?
 naber?
 değişiklik
 yaptım
+günaydın
